@@ -22,7 +22,7 @@
 
 ### Philly Bowden
 
-A marathon runner, coach and YouTuber based in the North West. She has been on atheltic scholarship to the States, represented GB, and is aspiring to qualify for GB in the Olympic marathon.
+A marathon runner, coach and YouTuber based in the North West. She has been on athletic scholarship to the States, represented GB, and is aspiring to qualify for GB in the Olympic marathon.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/nUkGHozBwOE?si=7BSKMGXeBLxkIT_i" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
