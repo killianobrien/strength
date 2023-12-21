@@ -1,6 +1,6 @@
 # Strength and mobility videos 
 
-## [Ben Felton](https://www.youtube.com/@BenIsRunning)
+## [Ben Felton](https://www.youtube.com/@BenIsRunning){target="_blank"}
 
 A newish YouTuber. Focuses on the marathon but also runs shorter distances. Podiums at small marathons and county level races. Lots of shoe review content. Has spent some time at training camps in Kenya. Gratuitous abs-show-off-pics aside, he is a fast runner and these are a couple of good detailed follow-along strength workout videos.
 
